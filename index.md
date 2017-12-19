@@ -16,8 +16,8 @@ Mungkin tidak. Sama seperti orang-orang Yunani Kuno yang keliru menganggap madu 
 
 Studi menunjukkan bahwa madu bisa menenangkan batuk anak-anak. **[Marimas Bikin Adem, Tidak Bikin Batuk](http://carabuatweblog.com/marimas-bikin-adem-tidak-bikin-batuk/)** Dalam sebuah studi Italia kecil tahun 2015, memberi anak-anak dua sendok teh madu dengan susu sebelum tidur mengurangi beberapa batuk dan juga obat batuk biasa. Tapi manfaatnya mungkin karena efek plasebo. Studi lain menemukan bahwa sirup manis agave dan air rasa rasa anggur membantu sama banyak. Jangan pernah memberi madu kepada bayi kurang dari 1 tahun karena risiko botulisme.
 
-**[SERBAQQ.NET BANDAR POKER ONLINE | DOMINOQQ | BANDAR Q | BANDAR SAKONG ONLINE UANG ASLI TERPERCAYA INDONESIA](http://www.seopokers.com/serbaqq-net-bandar-poker-online-dominoqq-bandar-q-bandar-sakong-online-uang-asli-terpercaya-indonesia/)**
-**[Jobsmart.co.id : Situs Informasi Lowongan Kerja Terbaru di IndonesiaA](http://carabuatweblog.com/jobsmart-co-id-situs-informasi-lowongan-kerja-terbaru-di-indonesia/)**
+**[virtual office](http://carabuatweblog.com/mengenal-bisnis-virtual-office-di-jakarta/), [virtual office di jakarta](http://carabuatweblog.com/mengenal-bisnis-virtual-office-di-jakarta/), [virtual office di jakarta](http://carabuatweblog.com/mengenal-bisnis-virtual-office-di-jakarta/)**
+**[heroes evolved](http://carabuatweblog.com/mengagumkan-game-heroes-evolved-grafisnya-memang-paling-ciamik/), [heroes evolved](http://carabuatweblog.com/mengagumkan-game-heroes-evolved-grafisnya-memang-paling-ciamik/)**
 
 
 
